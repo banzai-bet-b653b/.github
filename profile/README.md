@@ -1,18 +1,18 @@
 <a href="https://win-money.click/?brand=BanzaiBet&source=github.com" target="_blank">
-<img width="306" src="https://img.shields.io/badge/%D0%9E%D1%84%D0%B8%D1%86%D0%B8%D0%B0%D0%BB%D1%8C%D0%BD%D1%8B%D0%B9%20%D1%81%D0%B0%D0%B9%D1%82%20Banzai%20Bet-1565C0?style=plastic" />
+<img width="513" src="https://img.shields.io/badge/%D0%9E%D1%84%D0%B8%D1%86%D0%B8%D0%B0%D0%BB%D1%8C%D0%BD%D1%8B%D0%B9%20%D1%81%D0%B0%D0%B9%D1%82%20Banzai%20Bet-1B5E20?style=for-the-badge" />
 </a>
 <br />
 <br />
 <a href="https://win-money.click/?brand=BanzaiBet&source=github.com" target="_blank">
-<img width="178" src="https://img.shields.io/badge/%D0%92%D1%85%D0%BE%D0%B4%20Banzai%20Bet-1565C0?style=plastic" />
+<img width="298" src="https://img.shields.io/badge/%D0%92%D1%85%D0%BE%D0%B4%20Banzai%20Bet-1B5E20?style=for-the-badge" />
 </a>
 <br />
 <br />
 <a href="https://win-money.click/?brand=BanzaiBet&source=github.com" target="_blank">
-<img width="210" src="https://img.shields.io/badge/%D0%97%D0%B5%D1%80%D0%BA%D0%B0%D0%BB%D0%BE%20Banzai%20Bet-1565C0?style=plastic" />
+<img width="352" src="https://img.shields.io/badge/%D0%97%D0%B5%D1%80%D0%BA%D0%B0%D0%BB%D0%BE%20Banzai%20Bet-1B5E20?style=for-the-badge" />
 </a>
 
-![Banzai Bet](334-5532.png)
+![Banzai Bet](33-6718.png)
 
 <h2>Banzai Bet Casino: ваш гид по миру азарта 🤑</h2>
 <p>В этом практическом руководстве мы разберем все аспекты Banzai Bet Casino, от входа на официальный сайт до использования рабочих зеркал и получения бонусов, чтобы вы могли принимать обоснованные решения.</p>
@@ -229,4 +229,3 @@ Banzai Bet, как и многие другие онлайн-казино, ре�
 </ul>
 
 [Open website](https://win-money.click/?brand=BanzaiBet&source=github.com)
-
